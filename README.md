@@ -2,4 +2,4 @@
 
 Był sobie słoń, wielki — jak słoń
 
-Ale jaja
+Ale jaj
